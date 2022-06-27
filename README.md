@@ -1,3 +1,3 @@
-### Hola soy Juan Gámez 👋😀
+### Hola soy Juan José Gámez 👋😀
 
 
